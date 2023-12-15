@@ -27,4 +27,4 @@ This list is only for people who have had a pull request accepted. If that could
 - Mikail
 - umgefahren
 - pIPYTHONMC
-- cute catgirl :3
+- Jesus, son of God
